@@ -5,7 +5,7 @@ My interest in software started since i **started** using computer. Currently, I
 To get in touch with me, you can reach me at; 
 
 - ✉️ yunushangoksu@gmail.com
-- 🐦 [Twitter](https://twitter.com/yunushangoksu)
+- 🐦 [X](https://twitter.com/yunushangoksu)
 - 🖼️ [Instagram](https://www.instagram.com/yunushangoksu/)
 
 Thank you!
